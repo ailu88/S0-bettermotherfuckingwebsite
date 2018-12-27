@@ -1,1 +1,1 @@
-# bettermotherfuckingwebsite.github.io
+# https://ailu88.github.io/bettermotherfuckingwebsite/
